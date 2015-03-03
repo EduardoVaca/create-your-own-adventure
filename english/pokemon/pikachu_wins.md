@@ -1,1 +1,0 @@
-You bring out your Pikachu and Pikachu uses thunderbolt on the marshmallow! You win!
